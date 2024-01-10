@@ -1,3 +1,3 @@
-Hi , I'm  BarathEswaran...👋 (●'◡'●)
+Hi , I'm  Baratheswaran...👋 (●'◡'●)
 Full-Stack Developer💻
 
